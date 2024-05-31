@@ -18,7 +18,7 @@
 ## 📫 How to Reach Me
 - Email: [tgrtgr389@gmail.com]
 - LinkedIn: [I don't need fucking linkedin]
-- Portfolio: [why you need my Portfolio 🤨؟]
+- Portfolio: [[why you need my Portfolio 🤨؟](https://ibra-alpha.vercel.app/)]
 
 ## 😄 Pronouns
 - [Happy fan smart lovley and many more, e.g., He/Him, She/Her, They/Them]
